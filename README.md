@@ -1,7 +1,7 @@
 # Espaço para compartilhar link de reunião com os alunos 
 
 ## Reunião 2 turmas 
-## https://meet.google.com/omw-cnmj-ppp
+## https://meet.google.com/bzk-xpqw-hqn
 
 ## Reunião turma A
 #### ......
