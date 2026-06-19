@@ -1,7 +1,7 @@
 # Espaço para compartilhar link de reunião com os alunos 
 
 ## Reunião 2 turmas 
-## https://meet.google.com/bzk-xpqw-hqn
+## https://meet.google.com/dwg-xtqd-xaq?pli=1
 
 ## Reunião turma A
 #### ......
