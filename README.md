@@ -10,7 +10,7 @@
 #### .......
 
 ## Link do Recurso
-https://drive.google.com/file/d/1U-3N4iN6rJ3TtZc2UIRbUtbAACdvEVVM/view?usp=sharing
+https://meet.google.com/dwg-xtqd-xaq?pli=1
 
 ####Painel 
 
